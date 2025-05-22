@@ -1,0 +1,1 @@
+# MFP-no-cooldown-hacks
